@@ -1,2 +1,1 @@
-# Free-Fire-skript-
-Ff script
+dc359ffc-512c-4400-9538-3bb0a03fc1e2
